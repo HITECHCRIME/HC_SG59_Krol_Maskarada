@@ -19,9 +19,10 @@ to swoje odbicie
 refleksja przeszłości
 twardo na bicie ej
 
-zatrzymaj się,
+zatrzymaj no się,
 po odwróconej
 rzeczywistości
-
+drobnych drgnięć
+twój motyl spłonął
 patrzy na rząd 
 następstw
