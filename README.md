@@ -2,7 +2,7 @@
 MOTHNODE_ XXX (prod. Monki)
 
 demony ścigają mnie
-długą lutą lecą na mnie
+długą (lutą lecą) na mnie
 
 krawię z moich oczu
 krwawię 
