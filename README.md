@@ -17,12 +17,13 @@ tak czysto że widzę
 to swoje odbicie
 
 refleksja przeszłości
-twardo na bicie ej
+twardo (stąpa) na bicie ej
 
 zatrzymaj no się,
 po odwróconej
 rzeczywistości
 drobnych drgnięć
+
 twój motyl spłonął
-patrzy na rząd 
+patrząc na rząd 
 następstw
