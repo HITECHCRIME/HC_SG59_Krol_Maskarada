@@ -1,5 +1,10 @@
-# HC_SG59_Unnamed
+# MOTHNODE_ XXX (prod. Monki)
 MOTHNODE_ XXX (prod. Monki)
+Monki will make the beat.
+
+## Lyrics
+
+```
 
 demony ścigają mnie
 długą (lutą lecą) na mnie
@@ -27,3 +32,6 @@ drobnych drgnięć
 twój motyl spłonął
 patrząc na rząd 
 następstw
+
+
+```
