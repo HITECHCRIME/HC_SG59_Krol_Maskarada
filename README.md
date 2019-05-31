@@ -8,7 +8,7 @@ Monki will make the beat.
 ey ye
 demony ścigają mnie
 
-długą - na mnie toń na doniu
+długą - na mnie dłoń zbawionych
 krawię z moich oczu krwawię 
 
 duszą nie zostawia
@@ -39,11 +39,11 @@ w dzisiejszych czasach
 musisz wszystko wyjaśniać jaśniej
 
 jakby ognia nie było...
-to bym se nie zdał sprawy
+to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
 
 nie zacznę, sztuka nielada
-wolnym być to szare na szarym, ról maskarada
+wolnym być tym co szare na szarym, ról maskarada
 
 ```
