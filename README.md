@@ -36,15 +36,16 @@ nie pomoże plaster
 w dzisiejszych czasach
 musisz wszystko wyjaśniać jaśniej 
 (ściemniać za prawdę)
-jakby ognia nie było...
+jakby by ognia nie było...
 to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
 
 nie zacznę, sztuka nielada obawy
-wolnym być tym co szare (szarak) na szarym, ról maskarada
+wolnym być tym co szare (szarak) na szarym, król maskarada
+ról kusisz lasem
 w świetle jest jasne
-co prawda to prawda
+co znak zapytania to prawda
 korzystam nim zgaśnie
 nie rozpowiadam
 
