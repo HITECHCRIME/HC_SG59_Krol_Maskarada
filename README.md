@@ -50,4 +50,6 @@ co prawda to prawda
 korzystam nim zgaśnie
 nie rozpowiadam
 
+odrzuconych łaknięć
+
 ```
