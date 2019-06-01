@@ -36,14 +36,14 @@ na te globalną jaskrę
 nie pomoże plaster
 
 w dzisiejszych czasach
-musisz wszystko wyjaśniać jaśniej
-
+musisz wszystko wyjaśniać jaśniej 
+(ściemniać za prawdę)
 jakby ognia nie było...
 to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
 
-nie zacznę, sztuka nielada
+nie zacznę, sztuka nielada obawy
 wolnym być tym co szare na szarym, ról maskarada
 w świetle jest jasne
 co prawda to prawda
