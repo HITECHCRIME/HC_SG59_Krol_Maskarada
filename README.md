@@ -1,6 +1,4 @@
-# MOTHNODE_ XXX (prod. Monki)
-MOTHNODE_ XXX (prod. Monki)
-Monki will make the beat.
+# MOTHNODE_ Król Maskarada
 
 ## Lyrics
 
