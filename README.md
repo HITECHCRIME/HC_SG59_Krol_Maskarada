@@ -44,7 +44,7 @@ bym nie prosił o łaskę
 to bym nie gadał, że zacznę
 
 nie zacznę, sztuka nielada obawy
-wolnym być tym co szare na szarym, ról maskarada
+wolnym być tym co szare (szarak) na szarym, ról maskarada
 w świetle jest jasne
 co prawda to prawda
 korzystam nim zgaśnie
