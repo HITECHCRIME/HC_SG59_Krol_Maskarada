@@ -48,5 +48,6 @@ wolnym być tym co szare na szarym, ról maskarada
 w świetle jest jasne
 co prawda to prawda
 korzystam nim zgaśnie
+nie rozpowiadam
 
 ```
