@@ -3,14 +3,11 @@
 ## Lyrics
 
 ```
-ey ye
-demony ścigają mnie
-
+ey ye demony ścigają mnie
 długą - na mnie dłoń zbawionych
 krawię z moich oczu krwawię 
-
 duszą nie zostawia
-śladu na sterylnej? podłodze
+śladu na sterylnej podłodze
 
 straciłem fundament
 straciłem podłoże
@@ -36,7 +33,7 @@ nie pomoże plaster
 w dzisiejszych czasach
 musisz wszystko wyjaśniać jaśniej 
 (ściemniać za prawdę)
-jakby by ognia nie było...
+jakby by by ognia nie było...
 to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
