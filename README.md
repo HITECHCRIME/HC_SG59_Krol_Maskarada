@@ -6,8 +6,8 @@
 ey ye demony ścigają mnie
 długą - na mnie dłoń zbawionych
 krawię z moich oczu krwawię 
-duszą nie zostawia
-śladu na sterylnej podłodze
+duszą nie zostawia śladu 
+na sterylnej podłodze
 
 straciłem fundament
 straciłem podłoże
