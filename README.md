@@ -37,14 +37,13 @@ jakby by by ognia nie było...
 to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
-
 nie zacznę, sztuka nielada obawy
-wolnym być tym co szare (szarak) na szarym, król maskarada
-ról kusisz lasem
-w świetle jest jasne
+wolnym być tym co szare (szarak) na szarym, 
+król maskarada, ról kusisz lasem
+w świetle jest jasne 
 co znak zapytania to prawda
 korzystam nim zgaśnie
-nie rozpowiadam
+(nie rozpowiadam)
 
 
 
