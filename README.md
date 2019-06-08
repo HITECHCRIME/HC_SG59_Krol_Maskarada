@@ -1,5 +1,7 @@
 # MOTHNODE_ Król Maskarada
 
+Night Lovell Type Beat Energy (Prod. NetuH)
+
 ## Lyrics
 
 ```
