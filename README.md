@@ -40,7 +40,7 @@ to bym nie zdał se sprawy
 bym nie prosił o łaskę
 to bym nie gadał, że zacznę
 nie zacznę, sztuka nielada obawy
-wolnym być tym co szare (szarak) na szarym, 
+wolnym być (to) tym co szare (szarak) na szarym, 
 król maskarada, ról kusisz lasem
 w świetle jest jasne 
 co znak zapytania to prawda
@@ -49,6 +49,12 @@ korzystam nim zgaśnie
 
 
 
-odrzuconych łaknięć
+
+
+nie pojmuję odrzuconych łaknięć
+strój jest na tobie nie we wrogich twarzach
+wiedz zedrzemy z wszystkich szaty kłamstwa
+(after, it's not a matching prada ?)
+
 
 ```
