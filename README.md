@@ -47,6 +47,11 @@ co znak zapytania to prawda
 korzystam nim zgaśnie
 (nie rozpowiadam)
 
+zedrę z ciebie szaty (scream/chant)
+
+zedrę z ciebie szaty (scream/chant)
+
+zedrę z ciebie szaty (scream/chant)
 
 
 
