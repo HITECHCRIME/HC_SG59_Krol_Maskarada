@@ -53,8 +53,14 @@ korzystam nim zgaśnie
 
 nie pojmuję odrzuconych łaknięć
 strój jest na tobie nie we wrogich twarzach
-wiedz zedrzemy z wszystkich szaty kłamstwa
+wiedz zedrzemy z wszystkich kłamstwa szaty 
 (after, it's not a matching prada ?)
+błysk oceny w twoich oczach, nie nagana
+nawet nienaganna sprawa do załatwienia
+to u ciebie dramat 
+
+
 
 
 ```
+`ODRZUTY Z TEKSTÓW POTEM ZEBRAĆ DO BAZY`
