@@ -46,6 +46,8 @@ w świetle jest jasne
 co znak zapytania to prawda
 korzystam nim zgaśnie
 (nie rozpowiadam)
+ludziom w zabrudzonych maskach
+
 
 zedrę z ciebie szaty (scream/chant)
 
