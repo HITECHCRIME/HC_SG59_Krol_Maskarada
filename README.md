@@ -25,6 +25,7 @@ bym nie prosił o łaskę i bym nie gadał, że zacznę nie zacznę
 sztuka nielada, wolę być tym co szarne na szarym
 król maskarada, ról kusisz lasem, w świetle jest jasne 
 co znak zapytania to prawda korzystam nim zgaśnie
+przestań już gadać
 
 ey ye demony ścigają mnie
 długą - na mnie dłoń zbawionych    /// 
