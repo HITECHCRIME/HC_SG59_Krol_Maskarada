@@ -5,8 +5,29 @@ Night Lovell Type Beat Energy (Prod. NetuH)
 ## Lyrics
 
 ```
+ey ye 
+demony ścigają mnie 
+trupia na mnie dłoń zbawionych
+krawię z moich oczu krwawię
+dusza zostawiła ślady w sterylnej podłodze
+straciłem fundament, straciłem podłoże
+tak czysto że widzę to swoje odbicie
+refleksja przeszłości twardo stąpa na życie
+twardo stąpa na życie ej
+
+zatrzymaj no się po odwróconej rzeczywistości drobnych drgnięć
+twój motyw nie spłonął patrząc na rząd następstw
+na te globalną jaskrę nie pomoże plaster
+w dzisiejszych czasach musisz wszystko wyjaśniać jaśniej 
+
+jak gdyby ognia nie było to bym nie zdał se sprawy
+bym nie prosił o łaskę i bym nie gadał, że zacznę nie zacznę
+sztuka nielada, wolę być tym co szarne na szarym
+król maskarada, ról kusisz lasem, w świetle jest jasne 
+co znak zapytania to prawda korzystam nim zgaśnie
+
 ey ye demony ścigają mnie
-długą - na mnie dłoń zbawionych
+długą - na mnie dłoń zbawionych    /// 
 krawię z moich oczu krwawię 
 duszą nie zostawia śladu 
 na sterylnej podłodze
